@@ -11,7 +11,7 @@ Sisipin niat jahat: backdoor, spyware, atau sabotase jungle digital
 
 ✅ BOLEH:
 
-Bikin skin atau versi sendiri — asal ada catatan: “Berbasis dari Panel Macan™ oleh [Nama Lo Sendiri]”
+Bikin skin atau versi sendiri — asal ada catatan: “Berbasis dari Panel Macan™ oleh Danx]”
 
 Pakai buat server pribadi, tim kecil, laboratorium loreng
 
